@@ -1,0 +1,2 @@
+# parawayne.github.io
+mypage
